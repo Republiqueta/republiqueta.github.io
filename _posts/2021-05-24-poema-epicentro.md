@@ -10,7 +10,7 @@ categories:
 image: assets/images/fuga.jpg
 ---
 
-_Há um ano atrás escrevi este poema quando voltei para a cidade em que nasci por conta da pandemia. Hoje decidi publicá-lo aqui._
+_Há um ano escrevi este poema quando voltei para a cidade em que nasci por conta da pandemia. Hoje decidi publicá-lo aqui._
 
 adeus são paulo
 
