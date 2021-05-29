@@ -37,7 +37,6 @@ Voltei para casa cabisbaixa e reflexiva. Eu estava triste pela derrota, mas não
   
 Nunca desejei tanto ser um menino como naquele dia. É fato que qualquer um deles poderia ter errado, mas se tivessem, ninguém diria que eles não deveriam estar ali, que deveriam estar em outro lugar. Se eu fosse um menino poderia ter voltado para casa só com a tristeza normal de ter perdido um jogo, perdido um pênalti e não a tristeza estrutural de uma sociedade que diz que existem coisas que eu não deveria fazer e que quando eu erro todos nós perdemos. Eu não errei porque chutei a bola na trave, errei muito antes, errei ao querer jogar futebol, ao acreditar que poderia errar. Não posso, não podemos. Nossos erros não são só erros, são uma sucessão de decisões erradas que nos perseguem, nos desqualificam e tiram de nós a potência de querer melhorar ou seguir em frente, porque não importa o que façamos ou achamos que podemos fazer: nós não deveríamos nem estar ali.
 
-
 ---
 
 "Futebol de Lama" by Lucas Ninno is licensed with CC BY-NC-SA 2.0. To view a copy of this license, visit https://creativecommons.org/licenses/by-nc-sa/2.0/
