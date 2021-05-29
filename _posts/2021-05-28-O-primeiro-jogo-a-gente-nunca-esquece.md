@@ -7,7 +7,7 @@ categories:
   - fatos reais
   - sentimento
   - infância
-  -esporte
+  - esporte
 image: assets/images/futebol.jpg
 ---
 
