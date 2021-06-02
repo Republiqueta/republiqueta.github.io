@@ -31,4 +31,4 @@ A escolha da arma como símbolo, visto no bolsonarismo, não é uma aleatória, 
 
 ---
 
-<img src="https://c.pxhere.com/photos/d0/23/gun_shoot_cartridge_war_weapons_the_objectives_of_the_killing_shooting-1092632.jpg!d" srcset="https://c.pxhere.com/photos/d0/23/gun_shoot_cartridge_war_weapons_the_objectives_of_the_killing_shooting-1092632.jpg!d" alt="soldado, arma, guerra, tiroteio, arma de fogo, Atirar, matando, rifle, Armas, violência, Revólver, cartucho, manga, arma de fogo, Magnum, desencadear, cano da arma, Atirador, Os objectivos do, Armas de força, Banco de imagens In PxHere">
+img src="https://c.pxhere.com/photos/d0/23/gun_shoot_cartridge_war_weapons_the_objectives_of_the_killing_shooting-1092632.jpg!d" srcset="https://c.pxhere.com/photos/d0/23/gun_shoot_cartridge_war_weapons_the_objectives_of_the_killing_shooting-1092632.jpg!d" alt="soldado, arma, guerra, tiroteio, arma de fogo, Atirar, matando, rifle, Armas, violência, Revólver, cartucho, manga, arma de fogo, Magnum, desencadear, cano da arma, Atirador, Os objectivos do, Armas de força, Banco de imagens In PxHere"
