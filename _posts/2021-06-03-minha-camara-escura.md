@@ -48,6 +48,7 @@ Realidade por usurpação… visão obumbrada
 
 Dessa torpe invenção involuntária… d’um orifício obstruído.
 
+.
 
 Esse gosto intemporal… justaposição d’um ar rarefeito
 
