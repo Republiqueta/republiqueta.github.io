@@ -28,6 +28,7 @@ Em devaneios... em sua forma monocromática
 
 O tempo dilata… plenitude e vazio se contraem.
 
+.
 
 Pensamentos vagueiam… a meia-luz ambienta
 
@@ -37,6 +38,7 @@ Entre o tempo e a memória…  numa dança caótica
 
 Em imagens fugidias… que causa vertigem.
 
+.
 
 Tudo em um átimo… desencontro de tudo e nada
 
