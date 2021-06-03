@@ -2,7 +2,7 @@
  
 layout: post
  
-title: 'Poema : minha câmara escura'
+title: 'Poesia : minha câmara escura'
  
 author: bruno
  
