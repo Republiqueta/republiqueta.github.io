@@ -30,18 +30,29 @@ O tempo dilata… plenitude e vazio se contraem.
 
 
 Pensamentos vagueiam… a meia-luz ambienta
+
 No ímpeto involuntário… o lusco-fusco sonoro
+
 Entre o tempo e a memória…  numa dança caótica
+
 Em imagens fugidias… que causa vertigem.
 
+
 Tudo em um átimo… desencontro de tudo e nada
+
 Inexistência ganha corpo… vultos fugidios se formam
+
 Realidade por usurpação… visão obumbrada
+
 Dessa torpe invenção involuntária… d’um orifício obstruído.
 
+
 Esse gosto intemporal… justaposição d’um ar rarefeito
+
 Que o tempo marcou… d’um aquilatar indevido
+
 Turva a nitidez… por uma frágil oclusão
+
 Que os raios áureos insistem em dissipar.
 
 
