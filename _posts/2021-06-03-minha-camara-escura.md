@@ -21,9 +21,13 @@ image: assets/images/imagem3.jpg
 ---
 
 Sob a meia luz.... escuridão e claridade
+
 Do meu quarto... claro-escuro habitam
+
 Em devaneios... em sua forma monocromática
+
 O tempo dilata… plenitude e vazio se contraem.
+
 
 Pensamentos vagueiam… a meia-luz ambienta
 No ímpeto involuntário… o lusco-fusco sonoro
