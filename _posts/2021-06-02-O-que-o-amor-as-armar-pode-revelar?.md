@@ -1,6 +1,6 @@
 ---
 layout: post
-title: O que o amor as armas pode revelar?
+title: O que o amor às armas pode revelar?
 author: guilherme
 description: o uso simbólico da arma
 categories:
