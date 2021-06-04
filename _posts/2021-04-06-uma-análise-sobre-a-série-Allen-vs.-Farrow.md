@@ -2,11 +2,14 @@
 layout: post
 title: Uma análise sobre a série Allen vs. Farrow
 author: lais
-description: Série do embate entre Woody Allen e Mia Farrow sobre um caso de abuso sexual infantil
+description: Série sobre o embate entre Woody Allen e Mia Farrow em um caso de abuso sexual infantil
 categories:
 - abuso sexual
 - molestamento
-- 
+- sexualidade
+- gênero
+- infância
+- judiciário
 image: assets/images/alllen.jpg
 ---
 
