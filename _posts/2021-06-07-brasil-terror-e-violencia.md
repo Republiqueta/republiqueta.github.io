@@ -87,7 +87,7 @@ Judith Butler, em seu livro A vida Psíquica do Poder, escreveu o seguinte:
 
 O terror é a certeza do poder, sem além, aquém e horizontes. É a onipresença de uma lógica única e fechada, que te inclui apenas se puder te instrumentalizar. O terror é o poder que se impõe sobre nós e do qual somos dependentes, o poder que dá a vida para depois poder matar. O terror é a certeza da infelicidade! É a sensação de que não importa o que você faça, você sempre estará enclausurado, sufocado, silenciado, imobilizado e impedido de viver uma vida verdadeiramente significativa, isto é, uma vida humana. Você sempre será uma empresa explorada por outras empresas. O terror é o modelo totalitário transformado em modo de vida; é a vida consagrada ao altar da abjeção de si e ao sacrifício em nome da lógica única do mercado.
 
-No Brasil, o terror neoliberal tem sua própria “cerca de Auschwitz” e ela se chama Estado, a prova são os 475 mil mortos por covid-19. Quando aceitamos, e geralmente o fazemos com certa tranquilidade, que não é possível superar o sistema vigente, neste preciso momento atestamos que vivemos sob o terror. Está na hora de virar esse jogo.
+No Brasil, o terror neoliberal tem sua própria “cerca de Auschwitz” e ela se chama Estado, a prova são os 475 mil mortos por covid-19. Quando aceitamos, e geralmente o fazemos com certa tranquilidade, que não é possível superar o sistema vigente, neste preciso momento, atestamos que vivemos sob o terror. Está na hora de virar esse jogo.
 
 Referências:
 
