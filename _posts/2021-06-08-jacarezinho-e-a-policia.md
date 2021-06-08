@@ -12,6 +12,8 @@ image: assets/images/ad+8.png
 
 Neste episódio discutimos sobre as operações militares no Rio de Janeiro. Falamos sobre a ADPF 635, o massacre em Jacarezinho e de outras favelas no Rio, a imposição de um sigilo de 5 anos sobre as operações policiais e debatemos a própria posição da polícia em relação ao alto índice de violência e mortalidade dessas operações nas periferias.
 
+<iframe src="https://anchor.fm/alemdomais/embed/episodes/AD-8---O-caso-de-Jacarezinho-e-as-operaes-policiais-e129j0j" height="102px" width="400px" frameborder="0" scrolling="no"></iframe>
+
 ## Referências
 
 [ADPF 635](https://portal.stf.jus.br/processos/detalhe.asp?incidente=5816502)
