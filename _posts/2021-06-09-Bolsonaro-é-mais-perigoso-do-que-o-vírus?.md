@@ -17,7 +17,7 @@ Mas propomos uma reflexão. Se um motorista embriagado atropela uma pessoa e a m
 
 A doença, diferente do carro, irá matar pessoas independentemente de haver ou não um bom motorista. Haja visto que [países com boa condução no combate à pandemia tiveram pessoas mortas](https://graphics.reuters.com/world-coronavirus-tracker-and-maps/pt/countries-and-territories/new-zealand/). Na metáfora que usamos, uma pessoa pode ser atropelada também por um motorista sóbrio que perdeu a direção por óleo na pista.
 
-Nossa questão é sobretudo em relação às ações do motorista. E, sem dúvida, temos um condutor bêbado e psicopata. Ou seja, as mortes aconteceriam de qualquer forma dada a natureza do vírus, mas nem de longe na quantidade que temos no Brasil.
+Nossa questão é, sobretudo, em relação às ações do motorista. E, sem dúvida, temos um condutor bêbado e psicopata. Ou seja, as mortes aconteceriam de qualquer forma dada a natureza do vírus, mas nem de longe na quantidade que temos no Brasil.
 
 Ademais, precisamos ir com calma para responder à questão do título. Pensar o governo Bolsonaro não é apenas olhar para [suas deficiências](https://politica.estadao.com.br/blogs/gestao-politica-e-sociedade/onde-reside-o-maior-risco-ao-governo-bolsonaro/), é necessário, também, analisar a condução eficiente das pautas que são caras ao projeto bolsonarista.
 
