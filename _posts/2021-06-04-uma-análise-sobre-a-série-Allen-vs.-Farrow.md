@@ -27,3 +27,7 @@ O promotor não levou adiante o caso de abuso sexual, pois considerou a exposiç
 
 A série demonstra que há uma dificuldade de condenação de crimes sexuais, principalmente quando os casos envolvem pessoas conhecidas e presentes na vida pública e midiática, apesar de algumas atrizes terem apoiado publicamente Dylan Farrow após sua reaparição em jornais midiáticos em 2018. Apoio que não aconteceu em 2014, primeira vez que a Dylan Farrow apareceu nas mídias enquanto adulta para relatar sobre os abusos sexuais sofridos por ela como criança. Há uma relação de seu apoio em 2018 com o movimento #MeToo, ainda mais porque o único filho de Woody Allen e Mia Farrow, Ronan Farrow, publicou uma reportagem investigativa exclusiva em The New Yorker sobre os abusos do produtor Harvey Weinstein. Além disso, o espaço e o aparelho do sistema de justiça pode contribuir para a revitimização das vítimas de crimes sexuais, como também acontece no Brasil, por exemplo no caso de Mariana Ferrer. Uma pesquisa realizada por organizações voltadas para o bem-estar das crianças, "Child Welfare Agencies", alega que raramente as acusações de abusos sexuais são intencionalmente falsas. E quando o recurso de alienação parental é acionado, de forma rara nos EUA e no Brasil, contribui para o descrédito de alegações de abuso e molestamento sexual.
 
+Por Laís Marachini
+04.06.2021
+
+"Dylan with Woody Allen, and Mia Farrow with their son Satchel, in 1988" by DW Magazine is licensed with CC BY-NC 2.0. To view a copy of this license, visit https://creativecommons.org/licenses/by-nc/2.0/
