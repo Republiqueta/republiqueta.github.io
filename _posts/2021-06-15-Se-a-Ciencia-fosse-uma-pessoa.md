@@ -1,4 +1,15 @@
-﻿
+﻿---
+layout: post
+title: Se a Ciência fosse uma pessoa
+author: mends
+description: A gente sabe o que esperar da Ciência?
+categories:
+  - Método Científico
+  - autoritarismo
+  - epistemologia
+image: assets/images/french press.jpg
+---
+
 Imagine por um momento o seguinte: se a Ciência fosse uma pessoa, alguém interessante com quem você trombasse por aí e pudesse falar: “sabe, você é uma pessoa tão legal! Adoro seu trabalho, ouço seu *podcast*, sou fanzoca mesmo. Tanta coisa que você me diz de importante...mas, na verdade, assim na sinceridade mesmo, às vezes eu fico perdido porque você não me diz o que fazer com toda essa informação!"
   
 A Ciência provavelmente iria te responder: “Pois é! Mas eu nunca disse que eu seria a bússola moral da humanidade. Esse pecado eu não cometi, xará. De verdade, eu não me importo muito com o que você vai fazer com a informação que eu te dou. Eu só me preocuparia com algo que você faz se isso afetasse a minha capacidade de trabalhar de maneira não enviesada. Até porque eu trago novas informações o tempo todo! Elas vão completando o quebra-cabeças do Universo. Então, o que você faz com a informação é problema seu! Tem gente que pega o que eu disse ontem e faz afirmações absolutas, mas aí eu trago outra informação e o custo praquele sujeito voltar atrás é alto, e ele não volta. Aì você não pode comer ovo, e depois pode, e me xinga, diz que eu não presto pra nada”.
@@ -24,3 +35,6 @@ A Ciência sorriria, e pediria café na prensa francesa. Porque ela sabe, todo m
 **Ouça** Sister Rosetta Tharpe, uma guitarrista preta dos anos 50 que assombrava ninguém menos que Mr. Hendrix.
   
 **Assista** Oxigênio. Ou não. Não me responsabilizo.
+
+---
+"Drink to your health" por "United Blue" é licenciada sob CC BY-NC 2.0. Para ver uma cópia da licença, visite: https://creativecommons.org/licenses/by/2.0/ 
