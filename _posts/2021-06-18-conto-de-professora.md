@@ -18,6 +18,7 @@ Como que eu seria capaz de ensinar se ao mesmo tempo não aprendesse com os meus
 Não haveria magia no patrono e no ato de educar se houvesse um manual de instrução destinado aos professores. O trabalho de educar se destina a transformar vidas, mundos, realidades, ir além do óbvio para que possamos enxergar uma luz no fim do túnel: a esperança de dias melhores. E reforço isso porque, ao expor sobre diversidade cultural, houve um interesse e uma demanda de meus alunos e minhas alunas em entender o significado da sigla de LGBTQIA+. Isso significa que há um desejo de educação sexual nas escolas e por mais que haja uma mobilização conservadora a favor de uma imposição da abstinência sexual nas escolas e da ausência do debate de gênero e sexualidade nas escolas, não é tarde para insistir naquilo que nossos alunos como protagonistas de suas vidas desejam aprender e conhecer para incorporar e transformar a nossa sociedade brasileira. 
  
 por Laís Marachini
+
 19.06.2021
 
 ---
