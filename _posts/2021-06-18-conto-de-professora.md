@@ -19,7 +19,7 @@ Não haveria magia no patrono e no ato de educar se houvesse um manual de instru
  
 por Laís Marachini
 
-19.06.2021
+18.06.2021
 
 ---
 
