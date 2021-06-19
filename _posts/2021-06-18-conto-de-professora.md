@@ -8,6 +8,8 @@ categories:
 - brasil
 - educação
 - sociedade
+- ensino
+- contos
 image: assets/images/educação.jpeg
 ---
 
