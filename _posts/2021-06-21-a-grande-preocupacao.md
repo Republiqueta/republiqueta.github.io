@@ -8,7 +8,7 @@ categories:
   - política
   - filosofia
   
-image: assets/images/preocupacao.jpg
+image: assets/images/apreocupacao.jpg
 ---
 
 "Qual é a grande preocupação que eu tenho? É você permitir que a máquina te conquiste." _Luiz Inácio Lula da Silva, documentário Entreatos._ 
