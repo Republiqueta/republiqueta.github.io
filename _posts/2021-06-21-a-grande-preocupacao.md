@@ -11,7 +11,7 @@ categories:
 image: assets/images/preocupacao.jpg
 ---
 
-"Qual é a grande preocupação que eu tenho? É você permitir que a máquina te conquiste." Luiz Inácio Lula da Silva, documentário Entreatos. 
+"Qual é a grande preocupação que eu tenho? É você permitir que a máquina te conquiste." _Luiz Inácio Lula da Silva, documentário Entreatos._ 
 
 Permitir que te conquiste, não como se conquista um povo, mas como se conquista alguém: um por um. É o flerte, a tensão sexual, a sensação de ser o escolhido entre muitos, a conexão especial que nasceu agora, entre vocês, no meio da multidão. A máquina sedutora irá nos conquistar, um por um, e vamos gostar.
 
