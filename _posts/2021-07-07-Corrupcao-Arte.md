@@ -2,7 +2,7 @@
 layout: post
 title: A Arte da Corrupção e a Corrupção-Arte
 author: mends
-description: Eu quero de volta a corrupção "inofensiva"
+description: Eu quero de volta a corrupção "inofensiva", eu quero tentar ficar são.
 categories:
   - Corrupção
   - Problemas brasileiros
