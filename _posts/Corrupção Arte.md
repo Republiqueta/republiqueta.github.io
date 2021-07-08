@@ -1,4 +1,17 @@
-﻿**A Arte da Corrupção e a Corrupção-Arte**
+---
+layout: post
+title: A Arte da Corrupção e a Corrupção-Arte
+author: mends
+description: Eu quero de volta a corrupção "inofensiva"
+categories:
+  - Corrupção
+  - Problemas brasileiros
+  - pandemia
+image: assets/images/corrupcao-republiqueta.jpg
+---
+
+
+**A Arte da Corrupção e a Corrupção-Arte**
 
 Corrupção é uma palavra que tem um poder fantástico neste país. Desde pelo menos os anos 1930, ela está fixada no imaginário popular como o grande problema do país, mais até do que a saúva.
 
