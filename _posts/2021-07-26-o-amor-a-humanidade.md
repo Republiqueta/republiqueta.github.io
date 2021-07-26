@@ -6,7 +6,7 @@ description: Bolivarianismo e socialismo
 categories: Bolivarianismo
   -  venezuela
   -  imperialismo
-image: assets/images/venezuelapaz.jpg
+image: assets/images/venezuelapaz1.jpg
 ---
 
 Não é difícil para as e os habitantes da América Latina citar as inúmeras violações que nossas comunidades sofrem e sofreram ao longo do tempo em nossos respectivos países.
